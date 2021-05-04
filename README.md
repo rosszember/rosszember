@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @rosszember
+- 👀 I’m interested in Creative Technologies
+- 🌱 I’m currently learning 3D/AR
+- 📫 You can reach me via Twitter @rosszember
